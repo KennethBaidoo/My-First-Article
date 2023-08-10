@@ -1,4 +1,4 @@
-# My-First-Article
+# Embarking on a Journey into Cybersecurity: My Path and Passion
 This is my first article on my journey into cybersecurity
 
 In today's interconnected world, where digital landscapes are constantly evolving, my journey into cybersecurity has been an exciting and enlightening expedition. The difficulties I overcame, the information I learned, and the enthusiasm that propelled me forward inspire me as I think back on my journey.
